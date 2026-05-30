@@ -38,3 +38,19 @@ Title: Informe evaluacion 2
 
 <img width="783" height="558" alt="image" src="https://github.com/user-attachments/assets/ccfcaaa9-db79-447f-abdd-85dae39b6ef8" />
 
+<img width="786" height="592" alt="image" src="https://github.com/user-attachments/assets/425ed722-d570-4758-b895-81396beee3ea" />
+
+<img width="700" height="623" alt="image" src="https://github.com/user-attachments/assets/dad1f8c2-91e8-434d-9bb6-1b961d0737c3" />
+
+<img width="700" height="624" alt="image" src="https://github.com/user-attachments/assets/b8144bd1-ac63-4b23-9f21-cbff75c681f7" />
+
+<img width="729" height="636" alt="image" src="https://github.com/user-attachments/assets/e88fddb0-7473-4f48-83f8-4af2c46b0ad8" />
+
+<img width="726" height="485" alt="image" src="https://github.com/user-attachments/assets/eac327e4-7793-437f-a0d2-87751aaed95a" />
+
+<img width="727" height="333" alt="image" src="https://github.com/user-attachments/assets/58890585-3c85-45c2-b9d0-e14cd73e989e" />
+
+<img width="726" height="307" alt="image" src="https://github.com/user-attachments/assets/f5c39266-8c1e-4dc5-8f8f-5303c6154c6e" />
+
+<img width="728" height="248" alt="image" src="https://github.com/user-attachments/assets/1ef10a59-48ed-42b6-b1a7-fff87b17cd24" />
+
